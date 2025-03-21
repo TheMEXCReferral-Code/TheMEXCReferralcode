@@ -14,15 +14,15 @@ Referral codes are unique identifiers provided by existing users or promotional 
 
 2. Lifetime Trading Fee Discount: Trading fees can accumulate over time, especially for active traders. With the "MEXC-1WN8S" code, users enjoy a 50% discount on trading fees for life. This reduction not only enhances profitability but also encourages more frequent trading activities.​
 
-Crypto Platform: MEXC
+**Crypto Platform:** MEXC
 
-MEXC Referral code 2025: MEXC-1WN8S
+**MEXC Referral code 2025**: MEXC-1WN8S
 
-Sign up bonus: 8,800 USDT
+**Sign up bonus**: 8,800 USDT
 
-Discount on trading fees: 50% discount on all trading fees
+**Discount on trading fees:** 50% discount on all trading fees
 
-Additional rewards: other exclusive rewards upon sign up
+**Additional rewards:** other exclusive rewards upon sign up
 
 
 
