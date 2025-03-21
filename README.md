@@ -25,7 +25,7 @@ Referral codes are unique identifiers provided by existing users or promotional 
 **Additional rewards:** other exclusive rewards upon sign up
 
 
-
+<br>
 
 
 **How to Redeem the "MEXC-1WN8S" Referral Code**
